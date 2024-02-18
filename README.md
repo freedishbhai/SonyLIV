@@ -17,5 +17,5 @@ https://play.google.com/store/apps/details?id=com.genuine.leone
 **Use This Short Playlist** 
 https://daem.short.gy/sonyliv
 
-**Contact Us On Telegram @tvbooklive** 
+**Contact** 
 
